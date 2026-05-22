@@ -6,4 +6,3 @@ Follow us on:
 - TikTok: @wealthmindsetdaily
 - Instagram: @wealthmindsetdaily.ai
 - YouTube: @WealthMindsetDaily
-[Uptiktok-developers-site-verification=luEfVgoszXMXrBo36bkugFpsCrsM9o91loading tiktokluEfVgoszXMXrBo36bkugFpsCrsM9o91.txt…]()
